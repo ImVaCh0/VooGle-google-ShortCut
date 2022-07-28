@@ -1,1 +1,1 @@
-SUB TO MY YOUTUBE / TWITCH PLZ
+코딩 연습
